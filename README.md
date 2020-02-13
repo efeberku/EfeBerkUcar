@@ -1,2 +1,0 @@
-# efeberku
-My Privacy Policy.
